@@ -7,14 +7,14 @@ Notes: This is not an original version from the creator, but an updated version 
 Working on 04/22/2025
 
 
-´Solara Download⭐ (UNOFFICIAL):´
+*Solara Download⭐ (*UNOFFICIAL*)
 https://wearedevs.net/d/Solara
 
-´JJSploit Download🖥️ (OFICIAL):´
+*JJSploit Download🖥️ *(OFICIAL*):
 https://wearedevs.net/d/JJSploit
 
-´Xeno download👽 (OFICIAL SERVER):´
+*Xeno download👽 (*OFICIAL SERVER*):
 https://discord.com/invite/getxeno
 
-´Cloudy Download☁️ (OFICIAL SITE)´
+*Cloudy Download☁️ (*OFICIAL SITE*)´
 https://getcloudy.xyz/
