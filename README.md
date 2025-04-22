@@ -17,3 +17,7 @@ https://discord.com/invite/getxeno
 
 `*Cloudy Download☁️` (*OFFICIAL SITE*)´
 https://getcloudy.xyz/
+
+<div align="center"
+img src="https://desblogada.files.wordpress.co..." width="0px" /
+/div>
