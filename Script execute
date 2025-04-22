@@ -1,0 +1,1 @@
+loadstring(game:HttpGet("https://raw.githubusercontent.com/JpDevloper/Infinite-Yield-Reborn/refs/heads/main/source.txt"))()
