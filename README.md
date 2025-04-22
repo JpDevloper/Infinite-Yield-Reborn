@@ -18,6 +18,4 @@ https://discord.com/invite/getxeno
 `*Cloudy Download☁️` (*OFFICIAL SITE*)´
 https://getcloudy.xyz/
 
-<div align="center"
-img src="https://desblogada.files.wordpress.co..." width="0px" /
-/div>
+![infinite yield reborn image working!](https://github.com/JpDevloper/Infinite-Yield-Reborn/blob/aaf34e28036c4fd7a2f15540878acf196e73d4a7/IYR.PNG)
