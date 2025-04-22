@@ -15,5 +15,5 @@ https://wearedevs.net/d/JJSploit
 `*Xeno download👽` (*OFICIAL SERVER*):
 https://discord.com/invite/getxeno
 
-`*Cloudy Download☁️` (*OFICIAL SITE*)´
+`*Cloudy Download☁️` (*OFFICIAL SITE*)´
 https://getcloudy.xyz/
